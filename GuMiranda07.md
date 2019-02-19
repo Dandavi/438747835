@@ -1,4 +1,4 @@
-# Em que área da computação deseja atuar em sua vida profissional?
+#Em que área da computação deseja atuar em sua vida profissional?
 
 Gostaria de atuar na área de Pré-Vendas, para poder me especializar em Mainframes e então conquistar um cargo de Executivo.
 
